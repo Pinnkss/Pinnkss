@@ -1,7 +1,7 @@
 #SOBRE MIM
 
  
-👋Olá meu nome é @Pinnkss
+Olá meu nome é @Pinnkss
 
 - 👀 Estou interessada em aprender novas habilidades ...
 
